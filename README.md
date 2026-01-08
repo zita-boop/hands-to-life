@@ -53,7 +53,7 @@ A quiet reflection on patience, soil, and faith.
 ![007 — Waiting Season](images/series-1/007.png)
 # Description
 
-*Not every season asks for action. Some seasons invite waiting allowing the rain to fall and trusting time to tend what has been planted.*
+*Not every season asks for action.some seasons invite waiting allowing the rain to fall and trusting time to tend what has been planted.*
 ---
 
 ## Artist & Credits
